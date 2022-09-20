@@ -1,0 +1,2 @@
+# Construindo_paginas_para_internet_com_Bootstrap
+Entre minhas atividades com a Ai Press Assessoria, na plataforma de hospedagem Ai Press Host e também em nossa Rede SP de Notícias, sigo nesta em minha jornada Lifelong learning . Este é um curso rápido para aprimorar as habilidades (Construindo_paginas_para_internet_com_Bootstrap). Bóra pra cima! Vivendo e aprendendo a jogar... Nem sempre ganhando, nem sempre perdendo. Mas... aprendendo a jogar!
